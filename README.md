@@ -18,7 +18,8 @@ And this is the god Ganesha
 ![image](https://user-images.githubusercontent.com/111046257/184096189-a74ceb90-8d05-4ccd-a677-8470ec8ab7a4.png)
 
 
-[![God-elephant](https://www.google.com/search?q=ganesha&rlz=1C1WNOO_deCH1018CH1018&source=lnms&tbm=isch&sa=X&ved=2ahUKEwj84Kruub75AhWEi_0HHVCsAz0Q_AUoAXoECAIQAw&biw=1500&bih=881&dpr=2#imgrc=wwedPmcinLSkrM)
+[![God-elephant](https://user-images.githubusercontent.com/111046257/184104148-96dc20f8-cd2d-4d50-8297-1a7feca58538.png)](https://www.google.com/search?q=god+ganesha&rlz=1C1WNOO_deCH1018CH1018&source=lnms&tbm=isch&sa=X&ved=2ahUKEwjRh6SwtL75AhUKh_0HHbkBD6AQ_AUoAXoECAEQAw&biw=1500&bih=881&dpr=2)
+
 
 
 [link](https://www.google.com/search?q=god+ganesha&rlz=1C1WNOO_deCH1018CH1018&source=lnms&tbm=isch&sa=X&ved=2ahUKEwjRh6SwtL75AhUKh_0HHbkBD6AQ_AUoAXoECAEQAw&biw=1500&bih=881&dpr=2)
