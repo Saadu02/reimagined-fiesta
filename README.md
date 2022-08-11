@@ -1,4 +1,4 @@
-# **About me**
+# **About my favourite animal**
 
 Hello, my name is **Sathana**
 I like the animal *elephant*
